@@ -13,7 +13,7 @@
 
 - 💬 Ask me about **Indigo Chat**
 
-- 📫 How to reach me **indigo@jqm1e.xyz**
+- 📫 How to reach me **[Discord](https://discord.gg/P7nzpZ32Kj)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
